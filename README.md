@@ -1,1 +1,0 @@
-# Adya_Profile
